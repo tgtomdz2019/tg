@@ -3,7 +3,7 @@
 ## ⭐️ 👉 地址一 ：HttpS://www.tom362.com
 ## ⭐️ 👉 地址二 ：HttpS://www.tom367.com
 ## ⭐️ 👉 地址三 ：HttpS://www.tom370.com
-## ⭐️ 👉 备用导航 ：HttpS://998.Se
+## ⭐️ 👉 备用导航 ：HttpS://33AV.TV
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: avtomdizhi@gmail.com （发送任意内容获取最新地址）
